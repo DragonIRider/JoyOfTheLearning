@@ -1,2 +1,2 @@
 # JoyOfTheLearning
-Learning stuff
+Learning things.....
